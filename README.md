@@ -1,4 +1,3 @@
-# Precautions-for-Drought
 
 What is a Drought?
 
